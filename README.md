@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hi there 😃
 ### 📍 Atlanta, GA 
 ### Profile to be conitnued...
 
