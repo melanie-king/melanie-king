@@ -1,4 +1,6 @@
 ## Hi there 👋
+### 📍 Atlanta, GA 
+### Profile to be conitnued...
 
 <!--
 **melanie-king/melanie-king** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
